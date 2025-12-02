@@ -1,6 +1,6 @@
 <div align="center">
     
-![](https://i.postimg.cc/15DJCyYM/tumblr-825b840297f95044f10fa18c1d8b6c61-ba5edb61-400.png)
+![](https://64.media.tumblr.com/2b3653e8dd6dc9cbb9901e54b7b021e7/c85f43d987e499ed-50/s400x600/e6fb0f1418821e7211c2dedfb590ab9e1ee6bde9.pnj)
 
 <p align="center" width="100%">
     <img width="33%" src="image">
